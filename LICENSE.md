@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MathType for PC | MathType for Windows tool with rare MathType for PC | MathType for Windows Tool | LaTeX-support + symbolic-math. Featuring LaTeX-support and
 
 
 
